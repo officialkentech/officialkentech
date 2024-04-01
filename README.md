@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @officialkentech
+- 👀 I’m interested in tech stuff
+- 🌱 I’m currently learning: Python, HTML, CSS, JS
+- 📫 realkentech@gmail.com for stuff lol
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: I like games
